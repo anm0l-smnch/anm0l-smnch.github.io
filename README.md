@@ -1,1 +1,0 @@
-# anm0l-smnch.github.io
